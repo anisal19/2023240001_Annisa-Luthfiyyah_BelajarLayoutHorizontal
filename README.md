@@ -1,1 +1,0 @@
-# 2023240001_AnnisaLuthfiyyah_BelajarLayoutHorizontal
