@@ -1,2 +1,1 @@
-# 2023240001_Annisa-Luthfiyyah_BelajarLayoutHorizontal
-belajar layout horizontal
+# 2023240001_AnnisaLuthfiyyah_BelajarLayoutHorizontal
